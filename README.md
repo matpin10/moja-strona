@@ -1,1 +1,1 @@
-# Fajna s trona
+# Fajna strona
